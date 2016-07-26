@@ -1,5 +1,8 @@
-The Fisherman渔夫
-By Abbie Farwell Brown
+---
+title: "The Fisherman渔夫"
+introduction:By Abbie Farwell Brown
+翻译：风小力
+---
 
 The fisherman goes out at dawn 
 When every one's abed, 
@@ -35,7 +38,7 @@ Not quite -- yet maybe -- true.
 他们就像雾蒙蒙的大海
 不是灰色也不是蓝色
 他们本身就像自己口中的传奇
-不算是——也许——真实的
+不算是——也许——真实存在的
 
 He knows so much of boats and tides, 
 Of winds and clouds and sky ! 
