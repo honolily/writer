@@ -1,7 +1,7 @@
 Dirty Face小脏脸
 
-By Shel Silverstein
-翻译：风小力
+## By Shel Silverstein
+### 翻译：风小力
 
 Where did you get such a dirty face,
 My darling dirty-faced child? 
