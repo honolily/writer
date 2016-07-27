@@ -7,30 +7,37 @@ Where did you get such a dirty face,
 My darling dirty-faced child? 
 亲爱的小孩，你从哪弄的小脏脸蛋,
 还不赶紧洗干净去吃饭？
+
 I got it from crawling along in the dirt
 And biting two buttons off Jeremy's shirt.
 我刚在地上一路爬呀爬，
 还在杰里米衬衣上咬下两粒纽扣，就用我的牙牙！
+
 I got it from chewing the roots of a rose
 And digging for clams in the yard with my nose.
 我刚才趴在地上咬玫瑰花的茎，
 再用鼻子在院子里挖挖蛤蜊精。
+
 I got it from peeking into a dark cave
 And painting myself like a Navajo brave.
 我发现一个黑乎乎的洞，就凑过去瞄了瞄，
 接着我化妆得像个那瓦霍勇士，还发了好一回飙。
+
 I got it from playing with coal in the bin
 And signing my name in cement with my chin.
 我跟箱子里的煤炭精灵玩了好久哩，
 还往下巴涂抹水泥，高唱着我的名字。
+
 I got it from rolling around on the rug
 And giving the horrible dog a big hug.
 我在地毯上滚来滚去像只球，
 还拥抱狗狗好使它不再害羞。
+
 I got it from finding a lost silver mine
 And eating sweet blackberries right off the vine.
 我在一个山洞里发现了失落的银矿，
 在那就着藤子吃甜甜的黑莓，好口爽。
+
 I got it from ice cream and wrestling and tears
 And from having more fun than you've had in years.
 买个冰淇凌，有人来抢，打了一架，都哭了一场，
